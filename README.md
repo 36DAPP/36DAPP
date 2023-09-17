@@ -9,5 +9,5 @@ https://github.com/36DAPP/36DAPP/wiki
 ### 👋你可以搜索关键字一键下载即可
 ### 👋让你轻松享受优秀的影视作品
 
-### ⚡最新网址 http://jk404.com
 ### ⚡36D视频APP下载-36D视频官方最新版
+### ⚡最新网址 http://jk404.com
